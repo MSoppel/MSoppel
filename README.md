@@ -1,7 +1,7 @@
 ## Hi there 👋
-PLN Posiadam kilkuletnie doświadczenie w zarządzaniu mediami społecznościowymi, które zdobyłam podczas pracy wolontariackiej w organizacjach non-profit. Zajmuję się tworzeniem i publikowaniem treści, budowaniem społeczności online oraz projektowaniem materiałów graficznych. Jestem zdeterminowana, aby rozwijać się w obszarze social media, szczególnie w projektach, które związane są z tematyką zwierząt.
+PLN Posiadam kilkuletnie doświadczenie w zarządzaniu mediami społecznościowymi, które zdobyłam podczas pracy wolontariackiej w organizacjach non-profit. Zajmuję się tworzeniem i publikowaniem treści, budowaniem społeczności online oraz projektowaniem materiałów graficznych. Znam narzędzia takie jak Canva, CapCut i Meta Business Suite. Jestem zdeterminowana, aby rozwijać się w obszarze social media, szczególnie w projektach, które związane są z tematyką zwierząt.
 
-ENG I have several years of experience managing social media, gained through volunteer work with non-profit organizations. I specialize in creating and publishing content, building online communities, and designing graphic materials. I am determined to further develop my skills in social media, particularly in projects related to animal welfare.
+ENG I have several years of experience managing social media, gained through volunteer work with non-profit organizations. I specialize in creating and publishing content, building online communities, and designing graphic materials. I am proficient in tools such as Canva, CapCut, and Meta Business Suite. I am determined to further develop my skills in social media, particularly in projects related to animal welfare.
 
 📫 How to reach me: https://www.linkedin.com/in/mercedes-soppel/
 
